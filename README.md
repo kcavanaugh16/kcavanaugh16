@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kcavanaugh16
 - 👀 I’m interested in sleeping.
-- 🌱 I’m currently learning trigonometru.
+- 🌱 I’m currently learning trigonometry.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 If you need to reach me, don't.
 - 😄 Pronouns: they/them.
